@@ -8,7 +8,7 @@ Welcome to Sparked support. We are here to help you get the most out of your dai
 
 For any questions, feedback, or issues, please reach out:
 
-**Email:** badmoh996@gmail.com
+**Email:** hello@usesparked.com
 
 We aim to respond within 48 hours.
 
